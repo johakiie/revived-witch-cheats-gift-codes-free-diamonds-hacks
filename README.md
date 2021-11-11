@@ -1,2 +1,5 @@
-# revived-witch-cheats-gift-codes-free-diamonds-hacks
-Revived Witch cheat gift codes unlimited free diamonds redeem Hacks guide
+# Revived Witch cheat gift codes unlimited free diamonds redeem Hacks guide
+
+Revived Witch cheat gift codes unlimited free diamonds redeem Hacks guide - Snipers are your basic long-range physical damage dealers. Although most of them have the same range, there are a few exceptions. They can reach more squares than others, such as catapults. Sniper is a very important profession in any team, especially because the enemy in flight can only be hurt by remote operators. Although melee units and remote operators are considered sufficient to deal with any enemy from around you, some enemies with shields are highly resistant to physical damage. Therefore, in many stages, it is also necessary to keep the caster around, because without the caster, it is difficult, if not impossible, to defeat a very tenacious enemy. Like snipers, casters are either single target DPS or have AOE skills. Having an AoE damage maker is a necessary condition for stacking mobs, but remember that deploying these types of damage makers is much more expensive than deploying a single target maker. Revived Witch codes 2022 for diamonds
+
+<a href="https://watermod.icu/revived-witch/">go here</a>
